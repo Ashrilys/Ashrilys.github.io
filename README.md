@@ -1,2 +1,0 @@
-# darkynae.github.io
-Wrong
